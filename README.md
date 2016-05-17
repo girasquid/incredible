@@ -1,0 +1,1 @@
+Inspired by [Peter Harkin's media reviews](http://push.cx/media-reviews), I decided to begin tracking things about my life that I cared about. The things can change year to year, but I wanted to create artifacts.
